@@ -1,0 +1,2 @@
+# NTLearning
+O'quv markazi 
